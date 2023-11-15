@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nakashejoe
+- 👀 I’m interested in all kind of bot for social media  
+- 🌱 I’m currently a freelancer on fiverr
+- 💞️ I’m looking to collaborate on your project 
+- 📫 How to reach me fiverr.com/nakashey
